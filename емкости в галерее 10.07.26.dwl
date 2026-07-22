@@ -1,0 +1,3 @@
+admin
+DESKTOP-ROGMG85 
+16 июля 2026 г.  19:04:18
